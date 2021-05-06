@@ -1,4 +1,4 @@
 ### Hi there 👋
 
-- 😄 ... Searching a new job.
+- 😄 ... I´m searching a new job. 
 
